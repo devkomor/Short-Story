@@ -3,7 +3,7 @@ This is a short story for English class
 
 # The Chronicles of Oakhaven: The Runic Pact
 
-The thick air of the Oakhaven tavern, heavy with the scent of mead and cheap tobacco, was usually the perfect sanctuary for **Bjorn**. That afternoon, however, his tired eyes were glued to a yellowed parchment, its runic glyphs dancing under the flickering candlelight. His mind was leagues away, lost in the craggy mountains of his youth, until a sudden impact jolted him back to the present.
+The thick air of the Oakhaven tavern, heavy with the scent of mead and cheap tobacco, was usually the perfect sanctuary for **Bjorn**. That afternoon, his tired eyes were glued to a yellowed parchment, its runic glyphs dancing under the flickering candlelight. His mind was leagues away, lost in the craggy mountains of his youth, until a sudden impact jolted him back to the present.
 
 At the threshold of the door, a small figure collided with him. It was a halfling with wide eyes and restless hands who, in a trembling voice, stammered an apology before slipping through the crowd. Bjorn didn’t need to check his purse to know what had happened; it wasn’t the missing weight of the gold that alerted him, but a sharp electric vibration in the ether. The girl, in her haste, had not only taken his coins but had also brushed against the **Amulet of Skard**, a reactive artifact hanging from his belt.
 
