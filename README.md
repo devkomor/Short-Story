@@ -7,7 +7,7 @@ The thick air of the Oakhaven tavern, heavy with the scent of mead and cheap tob
 
 At the threshold of the door, a small figure collided with him. It was a halfling with wide eyes and restless hands who, in a trembling voice, stammered an apology before slipping through the crowd. Bjorn didn’t need to check his purse to know what had happened; it wasn’t the missing weight of the gold that alerted him, but a sharp electric vibration in the ether. The girl, in her haste, had not only taken his coins but had also brushed against the **Amulet of Skard**, a reactive artifact hanging from his belt.
 
-The dwarf did not chase her blindly. He simply closed his eyes and exhaled a sigh that sounded like grinding stone. He muttered a few syllables in Ancient Dwarven, and immediately, the world turned gray, save for a pulsing trail of heat—an ethereal residue—emanating from the thief’s hands.
+The dwarf did not chase her blindly. He simply closed his eyes and exhaled a sigh that sounded like grinding stone. He muttered a few syllables in Ancient Dwarven, and immediately, the world turned gray, save for a pulsing trail of heat an ethereal residue emanating from the thief’s hands.
 
 He followed the trail into the town’s gloomiest alleys, where sunlight struggled to penetrate. There, the scene was different than expected: the halfling was cornered. Two humans, their faces hardened by cruelty, snatched the bag from her with violence.
 
